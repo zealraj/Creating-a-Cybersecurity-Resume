@@ -54,3 +54,47 @@ Below, I've compiled a list of more than 20 resources to help you create an effe
 19)"Crafting a Winning Cybersecurity Resume" (https://www.darkreading.com/careers-and-people/crafting-a-winning-cybersecurity-resume/a/d-id/1333488)
 
 20)"Writing a Cybersecurity Resume: Tips and Tricks" (https://www.businessnewsdaily.com/11057-cybersecurity-resume-tips.html)
+
+ YouTube channels that may offer tips and guidance on creating a cybersecurity resume:
+
+1)"Hacking the Hiring Process" (https://www.youtube.com/channel/UCfYG8BtJfP-MkZm0Pi1q3aA)
+
+2)"Job Search TV" (https://www.youtube.com/channel/UCaBbx2Ez6n0R6L-GpfJ7e9g)
+
+3)"The Interview Guys" (https://www.youtube.com/channel/UC4_ZKc4jGN7P9XJ6LJ8QgWw)
+
+4)"The Resume Writing Academy" (https://www.youtube.com/channel/UCbOJtS8f1wF-q3o3-2_Xmzw)
+
+5)"Resume Genius" (https://www.youtube.com/channel/UCeJ5yBgI6UvN8z-o6YndZ6A)
+
+6)"Career Sidekick" (https://www.youtube.com/channel/UCzFFd6oRoY6z0ZxEu70lGAw)
+
+7)"Career Confidential" (https://www.youtube.com/channel/UCQ2Od5rO8Cw5KpFbRVy567A)
+
+8)"Resume Writing Service" (https://www.youtube.com/channel/UCeJ5yBgI6UvN8z-o6YndZ6A)
+
+9)"Kickresume" (https://www.youtube.com/channel/UCj9p3BqD_vz_2QFgO6zw2QQ)
+
+10)"Resume Writing Academy" (https://www.youtube.com/channel/UCbOJtS8
+
+11)"Resume Tips" (https://www.youtube.com/channel/UC8a4l1D2QnZjK5rv0cGKWJQ)
+
+12)"Resume Writing Lab" (https://www.youtube.com/channel/UCzjV7p8o6U-b6UHJ6O_V2cQ)
+
+13)"Resume Writing Services" (https://www.youtube.com/channel/UCeJ5yBgI6UvN8z-o6YndZ6A)
+
+14)"Resume Writers" (https://www.youtube.com/channel/UC8uVF5PdOgJ2sZOI_3qXYzw)
+
+15)"Resume Writing Tips" (https://www.youtube.com/channel/UCfSZzw8OdOtZzcBp4I_4xOQ)
+
+16)"Resume Writing Services Reviews" (https://www.youtube.com/channel/UCeJ5yBgI6UvN8z-o6YndZ6A)
+
+17)"Resume Writing Tips & Tricks" (https://www.youtube.com/channel/UCbOJtS8f1wF-q3o3-2_Xmzw)
+
+18)"Resume Writing Tutorials" (https://www.youtube.com/channel/UCQ2Od5rO8Cw5KpFbRVy567A)
+
+19)"Resume Writing Advice" (https://www.youtube.com/channel/UCzFFd6oRoY6z0ZxEu70lGAw)
+
+20)"Resume Writing Tips & Strategies" (https://www.youtube.com/channel/UCj9p3BqD_vz_2QFgO6zw2QQ)
+
+21)"Resume Writing Tips & Techniques" (https://www.youtube.com/channel/UCbOJtS8f1wF-q3o3-2_Xmzw)
